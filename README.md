@@ -1,5 +1,5 @@
 ## vsvank_enidid
-> c_d="20210729" c_n="Vlad dan Niki - cerita lucu dengan Mainan untuk anak-anak" c_u="[https://youtu.be/ktzqc7aw4F4](https://youtu.be/ktzqc7aw4F4)" ch_n="Vlad and Niki IDN" ch_u="[https://m.youtube.com/@vladandnikidn](https://m.youtube.com/@vladandnikidn)"
+> 2021-07-29 Vlad dan Niki - cerita lucu dengan Mainan untuk anak-anak [YouTube](https://youtu.be/ktzqc7aw4F4) [Vlad and Niki IDN](https://m.youtube.com/@vladandnikidn)"
 <br>
 
 > c_d="20200507" c_n="Nastya dan ayah menceritakan kepada anak-anak tentang permen dan coklat yang berbahaya" c_u="[https://youtube/n6L-uZFCgLY](https://youtu.be/n6L-uZFCgLY)' ch_n="Like Nastya IDN" ch_u="[https://m.youtube.com/@LikeNastya_IDN](https://m.youtube.com/@LikeNastya_IDN)"
