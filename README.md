@@ -1,4 +1,7 @@
 ## vsvank_nenidid
+> 2020-07-03 [YouTube](https://youtu.be/8fO-ByH5d1Q) Rapunzel (BARU) Bagian 1 | Kartun Anak Anak [Okidokido Indonesian](https://m.youtube.com/@okidokidoindonesian161)"
+<br>
+
 > 2021-07-29 [YouTube](https://youtu.be/ktzqc7aw4F4) Vlad dan Niki - cerita lucu dengan Mainan untuk anak-anak [Vlad and Niki IDN](https://m.youtube.com/@vladandnikidn)"
 <br>
 
