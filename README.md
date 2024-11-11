@@ -5,7 +5,7 @@
 > vsvank_nenidid - [Little Baby Bum - Nursery Rhymes & Kids Songs](https://m.youtube.com/@LittleBabyBum) - 2024_10_18 - [Little Baby Bum Official Trailer 🌟🆕 New Season Coming Soon!](https://youtu.be/51W6hP4PxVk)
 
 
-> vsvank_nenidid - [Masha dan Beruang](https://m.youtube.com/@MashaBearINDONESIA) - 2024_11_01 - [YouTube](https://youtu.be/oA6f43aJo4U) 💥 Episode Baru 2024 💥 Masha dan Beruang 👧🐻 Selamat Berpanen! 🎃👻 (Episode 50)
+> vsvank_nenidid - [Masha dan Beruang](https://m.youtube.com/@MashaBearINDONESIA) - 2024_11_01 - [💥 Episode Baru 2024 💥 Masha dan Beruang 👧🐻 Selamat Berpanen! 🎃👻 (Episode 50)](https://youtu.be/oA6f43aJo4U)
 
 
 > vsvank_nenidid - [Okidokido Indonesian](https://m.youtube.com/@okidokidoindonesian161) - 2020_07_03 - [Rapunzel (BARU) Bagian 1 | Kartun Anak Anak](https://youtu.be/8fO-ByH5d1Q)
