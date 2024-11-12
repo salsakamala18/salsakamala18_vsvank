@@ -5,6 +5,9 @@
 > vsvank_lenenen - [Cocomelon - Nursery Rhymes](https://m.youtube.com/@CoComelon) - 2018_05_24 - [Wheels on the Bus | @CoComelon Nursery Rhymes & Kids Songs](https://youtu.be/e_04ZrNroTo)
 
 
+> vsvank_nfrfrfr - [KIDIBLI en Français](https://m.youtube.com/@Kidibli_fr) - [Les enfants Pompiers à la rescousse !🚒🔥Vidéo éducative de camions de pompiers|Kidibli](https://youtu.be/DHoxljIRNz0)
+
+
 > vsvank_nrururu - [Маша и Медведь](https://m.youtube.com/@MashaBearRUSSIAN) - 2024_10_17 - [Маша и Медведь 💥НОВАЯ СЕРИЯ 2024💥 Бум-бум-барашек 🐏 🤗 (серия 129) Masha and the Bear](https://youtu.be/dRAEdZSaJA8)
 
 
